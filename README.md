@@ -1,0 +1,2 @@
+# smm
+syota mong mapagmasid
